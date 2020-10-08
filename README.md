@@ -1,3 +1,2 @@
- Made by apexda MLS.
+ Made by apexda
 
-Checkout my channel "apexda MLS"
